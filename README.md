@@ -1,0 +1,1 @@
+# Latihan-40-ekonomi
